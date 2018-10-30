@@ -10,3 +10,9 @@ Lessons learnt from past:-
 - Be correct from your point of view and Strictly Dont fear on what others say and Don't listen to those words
 - Be sincere in your work and God will give you reward.
 - Think Fast and slow to speak
+- Be careful with your words because it may hurt others.
+- Forgive everyone.
+- Don't waste time by unnecessary chating, talking, seeing videos, facebook and social media etc.
+- Believe you can. Have Faith and Trust in God.
+- Flesh will goes off one day and Word of God alone will remains forever.
+- Always think that flesh and everything is temporary and fades away one day but Word of God will remains forever so Trust in God.
