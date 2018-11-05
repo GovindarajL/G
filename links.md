@@ -1,0 +1,2 @@
+- https://www.linkedin.com/pulse/do-carry-conversation-evil-spirits-dr-michael-h-yeager/
+- https://www.linkedin.com/pulse/cast-out-devils-dr-michael-h-yeager/
