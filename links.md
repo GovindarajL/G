@@ -1,2 +1,4 @@
 - https://www.linkedin.com/pulse/do-carry-conversation-evil-spirits-dr-michael-h-yeager/
 - https://www.linkedin.com/pulse/cast-out-devils-dr-michael-h-yeager/
+- https://www.desiringgod.org/messages/if-anyone-loves-me-he-will-keep-my-word
+- https://www.ibelieve.com/blogs/asheritah-ciuciu/14-inspiring-bible-verses-about-gods-love.html
