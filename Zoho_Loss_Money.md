@@ -8,7 +8,7 @@
 
 - https://biblereasons.com/reasons-for-trials/
 
-- https://www.crosswalk.com/faith/women/7-reasons-to-trust-god-in-the-middle-of-your-mess.html
+- https://www.crosswalk.com/faith/women/7-reasons-to-trust-god-in-the-middle-of-your-mess.html - From this, I've learned that most of the time that trouble comes, God wants to sharpen us, mold us, and transform us into something greater. He wants us to see a side of himself that we haven't yet seen. And he wants others to see the amazing things he can do in our lives when we trust him with the mess. So we might as well respond the way he desires so we can get out of the mess, don't you think?
 
 - https://www.crosswalk.com/faith/spiritual-life/why-would-god-let-me-suffer-4-reasons-from-1-peter.html -> From this came to know that sufferings is for sufferings and to have more and firm faith in God.
 
